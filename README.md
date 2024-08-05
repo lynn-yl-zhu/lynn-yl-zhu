@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... (idk)
 - 🌱 I’m currently learning Statistics.
 - 💞️ I’m looking to collaborate on ... (idk)
-- 📫 How to reach me ... no contact is better
+- 📫 How to reach me ... perhaps no contact is better
 - 😄 Pronouns: She/Her
 
 <!---
